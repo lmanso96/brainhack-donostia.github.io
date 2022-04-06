@@ -30,4 +30,12 @@ permalink: /previous-editions/
 
 **Volunteers:** Hülya Aldemir, Irene Arrieta, Catherine Clark, Florent Dueme, Teresa Esteban, Candice Frances, Meritxell García, Shuang Geng, Sandra Gisbert, Garikoitz Lerma-Usabiaga, Mengxing Liu, Ning Mei, Piermatteo Morucci, Carlos Pérez-Serrano, Ileana Quiñones, Trisha Thomas, Manuel Carreiras.
 
+**BHD 2021**
+
+**Board:** Irene Arrieta (Chair), Chiara Luna Rivolta (Ex-chair), Eneko Uruñuela (Ex-chair).
+
+**Volunteers:** Hülya Aldemir, Karen Arellano, César Caballero-Gaudes, Amaia Carrión, Inés Chavarría, Florent Dueme, Laura Fernandez-Merino, Vicente Ferrer, Alberto Furgoni, Garikoitz Lerma-Usabiaga, Lucía Manso-Ortega, Piermatteo Morucci, Jose Pérez-Navarro, Abraham Sánchez, Manuel Carreiras.
+
+## Blog posts from previous editions
+
 ## Blog posts from previous editions
